@@ -1,0 +1,1 @@
+# nstu-chattrodol-activities
